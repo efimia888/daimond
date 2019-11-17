@@ -1,0 +1,2 @@
+# daimond
+velikolepno
